@@ -1,0 +1,1 @@
+# Little-Snitch-6-for-Mac
